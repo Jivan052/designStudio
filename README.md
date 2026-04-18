@@ -1,1 +1,1 @@
-# Welcom to design Studios
+# Welcome to Design Studios
